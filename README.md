@@ -36,5 +36,5 @@ You can click the Preview link to take a look at your changes.
 
 #### 📫 How to Reach me:
 You can find me on the following linkedIn platforms or send me an email:
-* 👔 [LinkedIn](https://www.linkedin.com/in/tameem-alsulmi)
+* 👔 [LinkedIn](https://www.linkedin.com/in/tameem-suliman)
 * ✉️ [TSAlsulmi@gmail.com](mailto:TSAlsulmi@gmail.com)
